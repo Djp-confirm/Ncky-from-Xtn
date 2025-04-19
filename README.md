@@ -1,1 +1,0 @@
-# Ncky-from-Xtn
